@@ -1,2 +1,2 @@
-learning now, and try hard!
-go for it!
+learning now, studying now, and try hard!
+go for it! never say die.
